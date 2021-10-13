@@ -29,7 +29,7 @@ Our attention is easily diverted by many types of distractions. How often have y
 
 Motivational speakers will tell you that to-do lists are a useful motivational tool when used as a way to clarify goals. It's easy to say, "I want to get that promotion," but listing the steps that you intend to take to accomplish that goal can help clarify your thoughts and give you achievable short-term goals. As you succeed at each step along the way, you'll gain confidence crossing those items off your list!
 
-So, start making your to-do lists today. You'll soon be less stressed, more organized and find yourself with more time in the day than you ever realized you had!
+So, start making your to-do lists today. You'll soon be less stressed, more organized and find yourself with more time in the day than you ever realized you had! 
 
 ##  Created By
 
